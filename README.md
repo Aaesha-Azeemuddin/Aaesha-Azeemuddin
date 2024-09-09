@@ -3,7 +3,6 @@ I'm Aaesha Azeemuddin, a passionate Data Science enthusiast currently exploring 
 
 **About Me:**
 
--  I’m currently working as a Data Science and Business Analytics Intern at The Sparks Foundation.
 - I'm on a journey to master Data Science and AI, currently pursuing a course at Innomatics Research Labs.
 
 📫 Reach Me:
