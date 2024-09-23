@@ -7,7 +7,7 @@ I'm Aaesha Azeemuddin, a passionate Data Science enthusiast currently exploring 
 
 📫 Reach Me:
 
-Connect with me on [LinkedIn](www.linkedin.com/in/aaesha-946985214) 
+Connect with me on [LinkedIn](https://www.linkedin.com/in/aaesha-azeemuddin/) 
 And shoot me an email at aaesha2402@gmail.com 📧
 
 🌟 Fun Fact:
